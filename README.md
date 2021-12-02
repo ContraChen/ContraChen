@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ContraChen
+- 👀 I’m interested in 摸鱼
+- 🌱 I’m currently learning 怎么活下去
+- 💞️ I’m looking to collaborate on 爱情
+- 📫 How to reach me ：Wechat—— Contra_Designer
